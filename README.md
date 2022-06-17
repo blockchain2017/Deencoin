@@ -1,4 +1,4 @@
-# Deencoin (DC) best ecommerce halal product platdorm
+# Deencoin (DC) best ecommerce halal product platform
 <div align="center"><img src="https://deencoin.io/swapexchange/assets/img/artlogo.png" /><br />
 </div>
 <div align="center">
