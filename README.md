@@ -17,7 +17,7 @@ MADEENAH FARM MARKETING CO.,LTD.
 
 Nong Chok, Bangkok 10530 TH
 
-Email : deencoin123@gmail.com
+Email : admin@deencoin.io
 
 Tel +66.619984998
 
