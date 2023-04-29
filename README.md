@@ -21,8 +21,6 @@ Email : admin@deencoin.io
 
 Tel +66.619984998
 
-⭕Website: https://www.deencoin.io
-
 👨🏿‍🤝‍👨🏿Facebook : https://www.facebook.com/DCTOKEN
 
 👨🏿‍🤝‍👨🏿Twitter : https://twitter.com/DCTOKEN1
